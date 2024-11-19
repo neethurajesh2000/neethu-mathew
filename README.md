@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1TzBlFcyl1bJw0N7fpIejxFoD-STeh0UT/view?usp=drive_link](https://drive.google.com/file/d/1TzBlFcyl1bJw0N7fpIejxFoD-STeh0UT/view?usp=drive_link)
 
-- ⚡ Fun fact **Traveling**
+- ⚡ Fun fact **Traveling and watching movie**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
